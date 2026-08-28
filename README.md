@@ -105,7 +105,7 @@ CGPA: **7.61 / 10**
 
 📧 **Email:** [sandippan52@gmail.com](mailto:sandippan52@gmail.com)
 
-💼 **[LinkedIn](YOUR_LINKEDIN_LINK)**
+💼 **[LinkedIn](https://www.linkedin.com/in/sandip-pan-12b23b285/)**
 
 🐙 **[GitHub](https://github.com/sandippan52)**
 
